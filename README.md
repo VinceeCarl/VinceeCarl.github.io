@@ -21,5 +21,8 @@ The group's third studio album Cutterpillow, was launched an open-air concert at
 
 Later that year, the band came up with a conceptual Christmas album Fruitcake. The album is notable in that it is the first and only album of the band recorded entirely in English. This was shortly followed by a release of a companion storybook of the same title.[11]
 
+The band that had crossed paths during their college days back in 1989 officially split up in the year 2002. After Eraserheads' main vocalist and songwriter Ely Buendia quit the band, it was confirmed that the famous 90’s band disbanded.  
 ## 2 Hours Eraserheads Songs
 <iframe width="560" height="315" src="https://www.youtube.com/embed/_RU0ClYN854?si=c4meD8XUL3hEdA5u" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+
+## Eraserheads Spotify Playlist
